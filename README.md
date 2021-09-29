@@ -1,1 +1,0 @@
-# globosv6snn
